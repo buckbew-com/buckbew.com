@@ -1,4 +1,3 @@
-Countryroll
-Take me home
-To the place
-Where I belong
+message from alex:
+
+hello, today no we do it. then after not the time, we can make time right so yeah and then make it so perfectrly and when we do and we cant while it make no sense but the and when it it make the why it dont make the thing sense while the why not in the question because we while wait the time it not so good after we not cant why? no buy we not can like it not make sense and then today we make so good timing and the time not so like it dont make sense when the time cant be right etomorow is athe time for saturday and then in saturaay it will work because it dont work and so the thing is that like i we not cant do it at the point and moment as i am pretty not the here is and i not know how to when we do like not make sense and why you so scary not way you so make no sense to me and i didnt do so say i do like why and he go not like he does say not why why not and i say i ask you dtho why tho and he dont tell me so me locked up him in room.
